@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **israelkabesa@gmail.com**
 
-- ⚡ Fun fact **I love to be in the sea**
+- ⚡ Fun fact **I love c lenguege**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
